@@ -26,6 +26,7 @@
 ## Let's Connect!
 - 📫 Email: epinedal1900@gmail.com
 - 💼 [LinkedIn](https://www.linkedin.com/in/emmanuel-pineda-le%C3%B3n-7a4963252)
+- 📷 [Instagram](https://www.instagram.com/pineda8537/)
 
 Feel free to reach out for collaborations or just a tech chat!
 
